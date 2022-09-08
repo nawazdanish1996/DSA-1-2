@@ -1,6 +1,7 @@
 # DSA-1-2
+Nawaz Danish
 
-Youtube Channel "Apna College" Playlist:
+Youtube Channel "ApnaCollege" Playlist:
 https://www.youtube.com/playlist?list=PLfqMhTWNBTe3LtFWcvwpqTkUSlB32kJop
 
 
