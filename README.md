@@ -1,6 +1,7 @@
 # DSA-1-2
 Nawaz Danish
 
-DSA 1 and 2 - Newton School
 
-Total: 42 Lession
+DSA with Geeky shows
+
+Playlist: https://www.youtube.com/playlist?list=PLbGui_ZYuhij8Oplrvjt_RlDliZQgdxoV
