@@ -2,8 +2,4 @@
 Nawaz Danish
 
 
-DSA with Geeky shows
-Playlist: https://www.youtube.com/playlist?list=PLbGui_ZYuhij8Oplrvjt_RlDliZQgdxoV
-
-
-20-326
+Link: https://www.youtube.com/playlist?list=PL9gnSGHSqcnr_DxHsP7AW9ftq0AtAyYqJ
